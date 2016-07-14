@@ -1,5 +1,5 @@
 #Resupplies#
-All resupply addresses are sourced from [HalfMile's PCT maps](https://www.pctmap.net/maps/). I am using [UPS Priority Mail Regional Rate Box B2](https://store.usps.com/store/browse/uspsProductDetailMultiSkuDropDown.jsp?productId=P_RRB_B2) for each of the following resupply shipments as recommended by [JohnZ](http://johnzahorian.com/). It's a flat rate when shipping within the United States for up to 20lbs.
+All resupply addresses are sourced from [HalfMile's PCT maps](https://www.pctmap.net/maps/). I used [UPS Priority Mail Regional Rate Box B2](https://store.usps.com/store/browse/uspsProductDetailMultiSkuDropDown.jsp?productId=P_RRB_B2) for each of the following resupply shipments as recommended by [JohnZ](http://johnzahorian.com/). It's a flat rate when shipping within the United States for up to 20lbs.
 
 You will hike 148.4 miles from the start of Section H until your first resupply at White Pass.
 
