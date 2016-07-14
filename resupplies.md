@@ -42,7 +42,7 @@ Attn: Tye Creek Lodge Loading Dock
 ###4. Stehekin (mi 2569.4)###
 Take the [shuttle bus](https://www.nps.gov/noca/planyourvisit/stehekin-transportation.htm) from High Bridge Ranger Station to Stehekin Landing for $7. Shuttle times are 9:15am, 12:30pm, 3:00pm, 6:15pm. While you're there, walk ~2 miles NW to [Stehekin Bakery](http://stehekinpastry.com/stehekin-pastry-company_294.html) for some of the most delcious cinnamon rolls you have ever had.
 
-There are 80.6 miles until the PCT monument and an additional 31 miles back down to Hart's Pass, the northern-most trailhead before Canada that cars can access. If you are planning on finishing the PCT and then hiking southbound to Hart's Pass to get a ride, you will need 4 more days of food at a pace of 27.9 miles per day, ~16,000 calories for this box.
+There are 80.6 miles until the PCT monument and an additional 31 miles back down to [Hart's Pass](http://www.fs.usda.gov/recarea/okawen/recarea/?recid=59263), the northern-most trailhead before Canada that cars can access. If you are planning on finishing the PCT and then hiking southbound to Hart's Pass to get a ride, you will need 4 more days of food at a pace of 27.9 miles per day, ~16,000 calories for this box.
 
 **Ship to:**<br>
 Stehekin Post Office [509-699-2015]<br>
