@@ -40,7 +40,7 @@ Skykomish, WA 98288<br>
 Attn: Tye Creek Lodge Loading Dock
 
 ###4. Stehekin (mi 2569.4)###
-Take the [shuttle bus](https://www.nps.gov/noca/planyourvisit/stehekin-transportation.htm) from High Bridge Ranger Station to Stehekin Landing for $7. Shuttle times are 9:15am, 12:30pm, 3:00pm, 6:15pm. While you're there, walk ~2 miles NW to [Stehekin Bakery](http://stehekinpastry.com/stehekin-pastry-company_294.html) for some of the most delcious cinnamon rolls you have ever had.
+Stekehin is a small community 11 miles southeast of the PCT. You can take the [shuttle bus](https://www.nps.gov/noca/planyourvisit/stehekin-transportation.htm) from High Bridge Ranger Station to Stehekin Landing for $7 one-way. Shuttle times are 9:15am, 12:30pm, 3:00pm, 6:15pm. While you're there, walk ~2 miles NW to [Stehekin Bakery](http://stehekinpastry.com/stehekin-pastry-company_294.html) for some of the most delcious cinnamon rolls you have ever had.
 
 There are 80.6 miles until the PCT monument and an additional 31 miles back down to [Hart's Pass](http://www.fs.usda.gov/recarea/okawen/recarea/?recid=59263), the northern-most trailhead before Canada that cars can access. If you plan to finish the PCT and then hike south to Hart's Pass to get a ride, at a pace of approx 28 miles per day, you will need to pack 4 days of food, ~16,000 calories for this box.
 
