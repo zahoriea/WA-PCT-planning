@@ -25,8 +25,7 @@ Attn: Tye Creek Lodge Loading Dock
 Note: accepts Fedex or UPS shipments only.
 
 ###4. Stehekin###
-Take [shuttle bus](https://www.nps.gov/noca/planyourvisit/stehekin-transportation.htm) from High Bridge Ranger Station (mi 2569.4) to to Stehekin Landing for $7.<br>
-Times are 9:15am, 12:30pm, 3:00pm, 6:15pm.
+Take [shuttle bus](https://www.nps.gov/noca/planyourvisit/stehekin-transportation.htm) from High Bridge Ranger Station (mi 2569.4) to to Stehekin Landing for $7. Shuttle times are 9:15am, 12:30pm, 3:00pm, 6:15pm. While you're there, walk ~2 miles NW to [Stehekin Bakery](http://stehekinpastry.com/stehekin-pastry-company_294.html) for some of the most delcious cinnamon rolls you have ever had.
 
 **Ship to:**<br>
 Stehekin Post Office [509-699-2015]<br>
