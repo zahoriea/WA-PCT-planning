@@ -1,5 +1,5 @@
 #Resupplies#
-All info below on where to ship your boxes have been sourced from [HalfMile's PCT maps](https://www.pctmap.net/maps/). For which service to use for shipping, I used [UPS Priority Mail Regional Rate Box B2](https://store.usps.com/store/browse/uspsProductDetailMultiSkuDropDown.jsp?productId=P_RRB_B2) which were recommended to me by [JohnZ](http://johnzahorian.com/) because they are a flat rate for up to 20lbs, come with a tracking number, and are insured.
+All info on where to ship your boxes has been sourced from [HalfMile's PCT maps](https://www.pctmap.net/maps/). For which service to use for shipping, I used [UPS Priority Mail Regional Rate Box B2](https://store.usps.com/store/browse/uspsProductDetailMultiSkuDropDown.jsp?productId=P_RRB_B2) which were recommended to me by [JohnZ](http://johnzahorian.com/) because they are a flat rate for up to 20lbs, come with a tracking number, and are insured.
 
 **Important:** All calories listed are my own approximations based off of my height, weight, and daily mileage. I estimated about 4,000 calories per day, but yours will vary.
 
