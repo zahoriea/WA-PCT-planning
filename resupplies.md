@@ -1,9 +1,9 @@
 #Resupplies#
 I am using [UPS Priority Mail Regional Rate Box B2](https://store.usps.com/store/browse/uspsProductDetailMultiSkuDropDown.jsp?productId=P_RRB_B2) for each of the following resupply shipments as recommended by my brother [JohnZ](http://johnzahorian.com/). It is a flat rate regardless of the weight for up to 20lbs.
 
-You will hike 148.4 miles until the first resupply. At a pace of 21.2 miles per day, you will need to pack approx 7 days (~28,000 calories<sup>1</sup>) of food in your pack.
+You will hike 148.4 miles until the first resupply. For a pace of 21.2 miles per day, you will need to pack approx 7 days (~28,000 calories<sup>1</sup>) of food in your pack.
 
-**Important note:** All calories listed are my own personal approximations based off of my height, weight, and daily mileage. Yours will vary.
+<sup>1</sup>**Important note:** All calories listed are my own approximations based off of my height, weight, and daily mileage. Yours will vary.
 
 ###1. White Pass###
 There is a small ski area 1/2 mile SW of PCT on Hwy 12 with a motel and Kracker Barrel convenience store where you will ship your resupply box. There are 97.6 miles until the next resupply. At a pace of 24.4 miles per day, you will need to pack approx 4 days of food, ~16,000 calories for this box. 
