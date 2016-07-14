@@ -1,7 +1,7 @@
 #Resupplies#
 I am using [UPS Priority Mail Regional Rate Box B2](https://store.usps.com/store/browse/uspsProductDetailMultiSkuDropDown.jsp?productId=P_RRB_B2) for each of the following resupply shipments as recommended by my brother [JohnZ](http://johnzahorian.com/). It is a flat rate regardless of the weight for up to 20lbs.
 
-**Important note:** All calories listed are my own approximations based off of my height, weight, and daily mileage. Yours will vary.
+**Important:** All calories listed are my own approximations based off of my height, weight, and daily mileage. I'm estimating about 4,000 calories per day, but yours will vary.
 
 You will hike 148.4 miles from the start of Section H until your first resupply at White Pass.
 
